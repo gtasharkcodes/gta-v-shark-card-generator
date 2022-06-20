@@ -7,5 +7,4 @@ The GTA v shark cards codes generator we've on the app is randomizing shark card
 
 Gta shark card codes generator,gta online free shark card codes no survey,gta online free shark card codes 2022,gta online free shark card codes, gta online free shark card codes no survey 2022,gta 5 online free shark card codes,gta v online free shark cards codes,gta 5 online shark card codes free xbox one,gta 5 online shark card codes free ps4,gta shark card code generator,gta 5 shark card code generator no survey xbox one,gta 5 shark card code generator no survey ps4,gta v shark card code generator xbox one g2a,gta 5 free shark card code generator 2022,gta 5 free shark card code generator 2022,gta 5 online shark card code generator
 
-# ➤➤➤ <a href="[https://lootcodes.com/nintendo/](https://appcake.xyz/gta-shark-cards/
-)">CLICK HERE TO GET YOUR CODE  </a> 
+# ➤➤➤ <a href="https://appcake.xyz/gta-shark-cards/">CLICK HERE TO GET YOUR CODE  </a> 
